@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning IOT and machine learning.
 - <!--👯 I’m looking to collaborate on ...-->
 - 🤔 I’m looking for help with machine learning
-- 💬 Ask me about ...
+- 💬 Ask me about ...Anything
 - 📫 How to reach me: ...[telegram](https://t.me/Arthurluthur)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
